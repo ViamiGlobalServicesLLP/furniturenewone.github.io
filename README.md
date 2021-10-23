@@ -1,2 +1,0 @@
-# furnituretemplate.github.io
- 
